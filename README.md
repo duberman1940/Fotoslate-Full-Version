@@ -1,0 +1,1 @@
+# Fotoslate-Full-Version
